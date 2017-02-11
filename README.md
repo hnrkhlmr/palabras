@@ -1,0 +1,2 @@
+# palabras
+Öva spanska glosor
